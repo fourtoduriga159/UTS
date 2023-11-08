@@ -1,2 +1,2 @@
-Fourto Duriga I Chinny t/
+Fourto Duriga I Chinny n\
 20220801305
