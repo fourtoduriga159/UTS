@@ -1,2 +1,2 @@
-Fourto Duriga I Chinny \n
+Fourto Duriga I Chinny
 20220801305
